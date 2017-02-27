@@ -1,3 +1,3 @@
-# matt-jillian-io
+# Matt & Jillian
 
-(https://matt.jillian.io/matt and jill.jpg)
+(http://matt.jillian.io/matt%20and%20jill.jpg)
