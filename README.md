@@ -1,6 +1,4 @@
-# Matt & Jillian
-
-## Save the date: August 18, 2017
+# Save the date: August 18, 2017
 
 ## North Saanich, BC, Canada
 
