@@ -12,3 +12,9 @@ Cash or gift cards from [Amazon](https://www.amazon.com) or [MEC](https://mec.co
 ## Amazon Registry
 
 You can view our [Amazon Registry](https://www.amazon.com/wedding/matt-harris-jillian-dunic-north-saanich-august-2017/registry/2HUICOGRSJQC2)
+
+## Other Registry Items
+
+We've selected a few items from Canadian retailers like HomeDepot or Canadian Tire that would thrill us. Please mark any items (it's all anonymous) you intend to purchase.
+
+[Canadian Tire and HomeDepot Registry](https://docs.google.com/spreadsheets/d/1rtR-Ua23S7_57trDipy3QXBTNfFeVmHUh0Mv8-6Tdx4/pubhtml)
