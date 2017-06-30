@@ -17,4 +17,4 @@ You can view our [Amazon Registry](https://www.amazon.com/wedding/matt-harris-ji
 
 We've selected a few items from Canadian retailers like HomeDepot or Canadian Tire that would thrill us. Please mark any items (it's all anonymous) you intend to purchase.
 
-[Canadian Tire and HomeDepot Registry](https://docs.google.com/spreadsheets/d/1rtR-Ua23S7_57trDipy3QXBTNfFeVmHUh0Mv8-6Tdx4/pubhtml)
+[Canadian Tire and HomeDepot Registry](https://docs.google.com/spreadsheets/d/1rtR-Ua23S7_57trDipy3QXBTNfFeVmHUh0Mv8-6Tdx4/edit?usp=sharing)
