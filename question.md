@@ -2,8 +2,14 @@
 title: Frequently Asked Questions
 ---
 
-## Where should out of town guests stay?
 
+## Parking?
+Parking shouldn't be a problem, you can park along the road on the grass. 
+
+## What to wear?
+We're obviously getting dressed up but this is also a farm barbeque and hopefully the weather could be hot during the day but chilly in the evening. Feel free to get dressed up but you don't have to be fancy. Be comfortable! And maybe wear something with a stretchy waistband!
+
+## Where should out of town guests stay?
 
 - Sidney Travelodge
 - Cedarwood Inn
