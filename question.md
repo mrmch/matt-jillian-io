@@ -4,9 +4,16 @@ title: Frequently Asked Questions
 
 ## Where should out of town guests stay?
 
+
+- Sidney Travelodge
+- Cedarwood Inn
+- Best Western Plus Emerald Isle Hotel
+- Beacon Inn at Sidney
+- Sidney Waterfront Inn and Suites
+- Salish Sea Beach House B&B
 - Brentwood Bay Lodge
 - The Sidney Pier Hotel and Spa
-- Hotel Rialto, Downtown Victoria
+
 
 ## Ask a Question
 
