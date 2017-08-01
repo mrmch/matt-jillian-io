@@ -19,9 +19,16 @@ title: Schedule
 
 2:00 PM
 
+### Party starts!
+2:20 PM
+
+Immediately after the ceremony there will be a big group photo and then about 45 minutes of professional photos. In this time feel free to check out the beach, have some more drinks, walk back to the farm to get more drinks appies, play lawn games, or just relax on the farm. You can aslo return to your hotel and have a nap then come on back for dinner whenever your ready. 
+
 ### Dinner Served (Buffet Style)
 
-5:00 PM
+5:30 PM
+
+Free for all seating, just bring your appetite!
 
 # Leftovers BBQ - August 19, 2017
 
