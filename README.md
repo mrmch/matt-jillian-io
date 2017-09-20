@@ -4,4 +4,6 @@
 
 Thanks to all friends and family who joined us on August 18, 2017 to celebrate!
 
-![Matt and Jillian](http://matt.jillian.io/matt%20and%20jill.jpg)
+![Proof](http://matt.jillian.io/IMG_0095.png)
+
+![Off to a good start](http://matt.jillian.io/IMG_0100.png)
