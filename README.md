@@ -1,7 +1,3 @@
----
-title: Successfully married!
----
-
 # Status: Happily Married
 
 ## We even have pictures to prove it
