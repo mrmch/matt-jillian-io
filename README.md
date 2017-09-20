@@ -1,4 +1,4 @@
-# Update: Matt & Jillian successfully married
+# Update: Successfully (and still) married
 
 ## We even have pictures to prove it
 
