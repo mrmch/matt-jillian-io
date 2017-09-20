@@ -1,5 +1,7 @@
-# Save the date: August 18, 2017
+# Update: Matt & Jillian successfully married
 
-## [RSVP here before June 30, 2017](http://matt.jillian.io/rsvp)
+## We even have pictures to prove it
+
+Thanks to all friends and family who joined us on August 18, 2017 to celebrate!
 
 ![Matt and Jillian](http://matt.jillian.io/matt%20and%20jill.jpg)
